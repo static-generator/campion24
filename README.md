@@ -12,6 +12,9 @@ Countries I want to visit
 3. New Zealand![image](https://github.com/user-attachments/assets/6906c6d4-2f0e-48b5-8ce7-a5cff083b0b2)
 
 
+
+
+
 favorite foods
 
 
