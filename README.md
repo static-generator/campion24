@@ -5,9 +5,12 @@
 **> Was born on December 22, 2009**
 
 Countries I want to visit
-1. Switzerland 
-2. Greenland
-3. Dubai
+1. Switzerland ![image](https://github.com/user-attachments/assets/8b638aa4-98eb-4440-977b-85ea65022188)
+
+2. Italy ![image](https://github.com/user-attachments/assets/0a2ae971-60d0-4170-a99f-19bf74eca2ea)
+
+3. New Zealand![image](https://github.com/user-attachments/assets/6906c6d4-2f0e-48b5-8ce7-a5cff083b0b2)
+
 
 favorite foods
 
